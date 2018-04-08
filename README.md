@@ -1,2 +1,0 @@
-# Dongchok.github.io
-dhfiasjkkfbhkjha
